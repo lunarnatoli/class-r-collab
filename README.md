@@ -5,5 +5,4 @@ Whaddup
 
 this is hannah and Luna writing
 
-try again
 
